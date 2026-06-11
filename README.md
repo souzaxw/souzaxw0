@@ -7,4 +7,6 @@
 
 # gosto de progamação 
 
+# entre em contato comigo 
+@souzaxw.0 ⚔️
 ![](https://media1.tenor.com/m/lqtbq028WxUAAAAC/neymar.gif)
