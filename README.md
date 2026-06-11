@@ -7,6 +7,8 @@
 
 # gosto de progamação 
 
+# tambem gosto de jogar jogos 
+
 # entre em contato comigo 
 @souzaxw.0 ⚔️ 
 
